@@ -1,2 +1,0 @@
-# VALENTEFLIX
-Streaming Séries Turcas 
